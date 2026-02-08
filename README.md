@@ -1,0 +1,1 @@
+this is just a list of things that are.. idk still need editing on this part
